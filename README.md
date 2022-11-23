@@ -1,2 +1,2 @@
 # Redx's-Template
-for average kay flock fan.
+for the average kay flock fan.
